@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ... -->
-- 💬 Ask me about play cf
+- 💬 Ask me about play game
 - 📫 How to reach me: luck
 - 😄 Pronouns: stupid fellow
 <!-- - ⚡ Fun fact: ... -->
