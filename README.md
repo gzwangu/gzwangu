@@ -9,8 +9,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ... -->
-- 💬 Ask me about play game
-- 📫 How to reach me: luck
-- 😄 Pronouns: stupid fellow
+- 💬 Ask me about play games
+- 📫 How to reach me: lucky
+- 😄 Pronouns: The clumsy bird flies first
 <!-- - ⚡ Fun fact: ... -->
 
